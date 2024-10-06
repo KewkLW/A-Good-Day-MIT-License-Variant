@@ -1,0 +1,1 @@
+# A-Good-Day-MIT-License-Variant
